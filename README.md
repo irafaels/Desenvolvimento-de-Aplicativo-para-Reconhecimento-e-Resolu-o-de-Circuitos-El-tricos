@@ -1,0 +1,1 @@
+# Desenvolvimento-de-Aplicativo-para-Reconhecimento-e-Resolu-o-de-Circuitos-El-tricos
